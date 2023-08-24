@@ -1,1 +1,0 @@
-# ecompnotes.github.io
